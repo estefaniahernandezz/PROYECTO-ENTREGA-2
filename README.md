@@ -1,2 +1,1 @@
-# PROYECTO-ENTREGA-2
-Segunda Entrega del Proyecto. 
+Estefania Hernandez Zuluaga 1041266002 Ingenieria Industrial
